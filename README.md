@@ -1,2 +1,3 @@
 # hello-world
-deleting the last excuse to be productive
+crushing the last excuse to be productive
+isn't it ironic
